@@ -1,6 +1,5 @@
 ### Hi, I'm Muskaan Jain 👋
-![](https://cdn.hackernoon.com/images/ckxz-5-f-75-v-00-z-00-as-638-qw-6-ofc.jpg)
-
+![](https://hit.yhype.me/github/profile?user_id=37116218)
 <!--
 **mskn06/mskn06** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
